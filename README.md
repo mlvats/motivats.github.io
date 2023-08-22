@@ -1,1 +1,0 @@
-# motivats.github.io
